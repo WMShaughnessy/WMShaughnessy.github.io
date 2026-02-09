@@ -1,1 +1,0 @@
-# WMShaughnessy.github.io
